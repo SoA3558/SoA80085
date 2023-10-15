@@ -1,7 +1,6 @@
-### Hi there 👋
-# THE DRUGS ARE CHASING JASON MOMOA
-#### **AND IM GUILTY**
-<img src= "imagery/download.png" width= "500" height= "900">
+### There ising here absolutely noth 👋
+# NOthing to look at here
+#### **GET OUT**
 
 <!--
 **SoA80085/SoA80085** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
