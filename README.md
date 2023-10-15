@@ -1,4 +1,4 @@
-### There ising here absolutely noth 👋
+### There is absolutely nothing 👋
 # Nothing to look at here
 #### **GET OUT**
 
