@@ -1,5 +1,5 @@
 ### There ising here absolutely noth 👋
-# NOthing to look at here
+# Nothing to look at here
 #### **GET OUT**
 
 <!--
